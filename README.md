@@ -1,0 +1,1 @@
+# cikkszam_atalakito
